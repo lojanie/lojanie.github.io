@@ -1,28 +1,43 @@
-![Soul Sequence](https://i.imgur.com/jlDa04O.png)
+![The Love Trunk]([https://i.imgur.com/jlDa04O.png](https://imgur.com/a/wkAZ13I))
 
-# It's time to groove
+# Join us at The Love Trunk
 
-Music is in our DNA, it’s a universal language. Through the sound of live instruments and vocal harmonies, to the repetitive rhythm of the four on the floor; we feel it all. It has no limits, and harnesses the power to bring us together.
+It’s time to sweep the winter blues of January aside and come together again, celebrating love in its multitude of shapes and sizes. 
 
-Join us on December 21st, the longest night of the year, in the beautiful loft of NOMADLife cooking up a sequence of soul…
+Through the newly formed non-profit Éléphantastique, join us for a valentine’s-themed dance party.  It will get sappy, sweaty, but most of all, groovy, baby.
 
-### The Soul Sequence!
+Kicking the night off right we’ll have Alinea, with his trusted magical voice and instrumentalizing to carry us along an acoustic serenade
+Next, the lights dim and the DJs begin: find L-PAD, Lojanie, and Grid providing anything from soul, funk, and disco to techno, house, and gosh knows what else. Come find out for yourself.
 
-Alinea will start the night off right frying up some live music, and DJ Lojanie to follow serving up a loaded sundae of a set.
-This time and space exists for freedom of expression, prioritizing space to dance, leaving our phones aside, and making new friends :) Let’s make the most of it together.
+Dare we ask you to throw on a garment from your tickle trunk? Your costume box? That silly corner of your closet? Those heart shaped sunnies collecting dust, at the very least?
 
-*More information, plus ticket access, soon. Stay tuned!*
+This event is BYOB. The letter writing station will be returning :) Stay tuned for location deets. 
 
----
 
-La musique fait partie de notre ADN, c’est un langage universel. Depuis le son des instruments et des harmonies vocales, au rythme répétitif du "four on the floor", nous ressentons tout. Elle n’a pas de limites et c’est ce qui lui donne le don de nous rassembler.
+Can’t wait to see y’all on the dance floor.
 
-Rejoignez-nous le 21 décembre, la nuit la plus longue de l’année, dans le magnifique loft de NOMADLife, pour une soirée remplie de soul…
-The Soul Sequence !
+___________________________________________________
 
-### The Soul Sequence!
+MORE ON THE PERFORMERS:
 
-Alinea ouvrira la soirée aux fourneaux de la musique live, et DJ Lojanie prendra le relais avec un set chargé comme un généreux sundae.
-Cet espace-temps est dédié à la liberté d’expression, à la danse avant tout, à laisser nos téléphones de côté et à faire de nouvelles rencontres :) Faisons-en un moment inoubliable ensemble.
 
-*Plus d’informations à venir, restez à l'antenne !*
+Lojanie
+
+Rising from Sopranos soil and calling Canada home for the last decade, DJ Lojanie aims to elicit joy and movement in those listening. Drawing inspiration from Balearic House’s eclectic formula, she builds a mosaic of global sounds blending cosmic dance, disco, and deep house. 
+
+https://on.soundcloud.com/rut15DgsqKsg9Xpf9 
+
+
+L-PAD
+
+Although the host of a biweekly program on N10.as exploring the ambient and experimental, LPAD secretly yearns for the dance floor. A longtime lover of acid, techno, house of all vintages, he aims to bring a more lively and punchy atmosphere than usual - although not without a few curve-balls.
+
+https://on.soundcloud.com/iEyvCYWmekje4m9z9
+
+
+Grid
+
+Casual music selector from Lebanon, Grid likes to make every set a reflection of her current finds, from disco, funk to house and pop. She has a mission to dig and discover classical and reworked music from the arab world. Tune in for an eclectic journey! 
+Some special love themed tunes will be on the menu, expect to hear the songs you sing to in the showers! 
+
+https://on.soundcloud.com/mmFuGEMZejWT3SRG7
