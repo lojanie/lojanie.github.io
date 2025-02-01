@@ -37,6 +37,12 @@
             margin-bottom: 20px;
             box-shadow: 0 4px 8px rgba(0, 0, 0, 0.2);
         }
+        @media (max-width: 768px) { /* Targets screens smaller than 768px (tablets & phones) */
+        img {
+        max-width: 90%; /* Make the image take up 90% of the screen width */
+        height: auto; /* Maintain aspect ratio */
+        }
+        }
         .footer {
             margin-top: 20px;
             font-size: 14px;
